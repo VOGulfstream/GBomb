@@ -1,3 +1,7 @@
+# GBomb
+
+
+
 ### Biden’s Business Ties with China (Full Report)  拜登家族与中共关系调查报告
 
 https://gnews.org/zh-hans/439076/  
